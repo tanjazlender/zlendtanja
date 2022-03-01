@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @zlendtanja
+- 👀 I’m interested in microbiology
+- 🌱 I’m currently learning DNA sequence analysis
+- 📫 How to reach me tanja.zlender@nlzoh.si
